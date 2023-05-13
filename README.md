@@ -4,5 +4,5 @@
 
 https://www.youtube.com/watch?v=I7zpcF_kmew&ab_channel=BUdersBo%C4%9Fazi%C3%A7iliden%C3%96zelDers
 
-
+![saas](https://github.com/FurcanY/Newton-Yontemi-Ile-Koklu-Sayi-Bulma/assets/114299899/11ef5323-9ca8-4ddb-b308-d316826dc97a)
 
